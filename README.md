@@ -1,1 +1,0 @@
-# Bright-ideas-consulting-project-
